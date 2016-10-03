@@ -1,0 +1,1 @@
+Ver: http://stackoverflow.com/a/31571790/48025
